@@ -1,1 +1,1 @@
-# VitalGlow.com
+# RuGlow.com
